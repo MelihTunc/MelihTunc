@@ -1,4 +1,3 @@
-<div class="tenor-gif-embed" data-postid="15780534" data-share-method="host" data-width="100%" data-aspect-ratio="1.21760391198044"><a href="https://tenor.com/view/welcome-to-my-life-life-sheldon-gif-15780534">Welcome To My Life Sheldon GIF</a> from <a href="https://tenor.com/search/welcometomylife-gifs">Welcometomylife GIFs</a></div><script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 ### Hi there 👋
 
