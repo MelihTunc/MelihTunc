@@ -8,6 +8,8 @@ Hello. I'm Ahmet Melih Tunç; I have been working in the field of software for 5
 My Education Lifes
 ------------------------------
 Yalova Anatolian High School
+
 Karabuk University
+
 Yalova University
 
